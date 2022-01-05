@@ -11,6 +11,6 @@ THESE MY NON FUNGIBLE OSU SKINS. I OWN THEM ON THE BLOCK CHAIN. DO NOT STEAL THE
 # [funorange tekkito edit (+oreo)](https://ori09.s-ul.eu/dE1YaPtV)
 ![](https://ori09.s-ul.eu/viITP1tl)
 
-# [funorange tekkito edit (+oreo)](https://ori09.s-ul.eu/8IuNboEF)
+# [funoreo ends edit](https://ori09.s-ul.eu/8IuNboEF)
 ![](https://ori09.s-ul.eu/HInxTe8k)
 
