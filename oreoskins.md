@@ -17,3 +17,6 @@ THESE MY NON FUNGIBLE OSU SKINS. I OWN THEM ON THE ETHEREUM BLOCK CHAIN. DO NOT 
 # [Mathi ensalada okb edit](https://ori09.s-ul.eu/lHj4JhjX)
 ![](https://ori09.s-ul.eu/xQ6oIlfO)
 
+# [monkoreo](https://ori09.s-ul.eu/FWutI8Y0)
+![](https://ori09.s-ul.eu/Wfv0gAFv)
+
