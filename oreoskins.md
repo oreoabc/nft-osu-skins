@@ -21,3 +21,5 @@ ALL SKINS SHOWN ARE EXCLUSIVE TO THIS PAGE! unless some bitch steals them and pu
 # [monkoreo](https://ori09.s-ul.eu/FWutI8Y0)
 ![](https://ori09.s-ul.eu/Wfv0gAFv)
 
+# [monkoreo 2021](https://ori09.s-ul.eu/hcXKzBxA)
+![](https://ori09.s-ul.eu/eR1ou8r7)
