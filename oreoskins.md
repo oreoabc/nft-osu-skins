@@ -23,6 +23,3 @@ ALL SKINS SHOWN ARE EXCLUSIVE TO THIS PAGE! unless some bitch steals them and pu
 
 # [monkoreo 2021](https://ori09.s-ul.eu/hcXKzBxA)
 ![](https://ori09.s-ul.eu/eR1ou8r7)
-
-# [tekkito (pre-publication)](https://ori09.s-ul.eu/ASfbmHhJ)
-![](https://ori09.s-ul.eu/PLwY5MuI)
