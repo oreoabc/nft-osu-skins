@@ -3,6 +3,10 @@
 THESE MY NON FUNGIBLE OSU SKINS. I OWN THEM ON THE ETHEREUM BLOCK CHAIN. DO NOT STEAL THEM.
 ALL SKINS SHOWN ARE EXCLUSIVE TO THIS PAGE! unless some bitch steals them and puts it on their skin page
 
+
+# [SHIRONEKO 1.0 (NEW!!!)](https://ori09.s-ul.eu/6cviVORR)
+![](https://ori09.s-ul.eu/WipXhzQi)
+
 # [funoreo (WIP)](https://ori09.s-ul.eu/L4Vc5Eme)
 ![](https://ori09.s-ul.eu/Z0OhtcUx)
 
@@ -23,3 +27,7 @@ ALL SKINS SHOWN ARE EXCLUSIVE TO THIS PAGE! unless some bitch steals them and pu
 
 # [monkoreo 2021](https://ori09.s-ul.eu/hcXKzBxA)
 ![](https://ori09.s-ul.eu/eR1ou8r7)
+
+
+
+
