@@ -4,7 +4,7 @@ THESE MY NON FUNGIBLE OSU SKINS. I OWN THEM ON THE ETHEREUM BLOCK CHAIN. DO NOT 
 ALL SKINS SHOWN ARE EXCLUSIVE TO THIS PAGE! unless some bitch steals them and puts it on their skin page
 
 
-# [SHIRONEKO 1.0 (NEW!!!)](https://ori09.s-ul.eu/6cviVORR)
+# [SHIRONEKO 1.0 (NEW!!! (DOWNLOAD THIS ONE))](https://ori09.s-ul.eu/6cviVORR)
 ![](https://ori09.s-ul.eu/WipXhzQi)
 
 # [funoreo (WIP)](https://ori09.s-ul.eu/L4Vc5Eme)
