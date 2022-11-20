@@ -13,7 +13,7 @@ ALL SKINS SHOWN ARE EXCLUSIVE TO THIS PAGE! unless some wanker steals them and p
 ![](https://ori09.s-ul.eu/PTbGAxId)
 
 # [END DESTROYER](https://ori09.s-ul.eu/bbqwJ8h5)
-![](https://ori09.s-ul.eu/2LnmX5lZ)
+![](https://ori09.s-ul.eu/nl6myfC2)
 
 # [nareo](https://ori09.s-ul.eu/bP6JzLli)
 ![](https://ori09.s-ul.eu/6MNjqsWT)
