@@ -12,7 +12,7 @@ ALL SKINS SHOWN ARE EXCLUSIVE TO THIS PAGE! unless some wanker steals them and p
 # [tekkitoreo](https://ori09.s-ul.eu/yTYRA2AD)
 ![](https://ori09.s-ul.eu/PTbGAxId)
 
-# [blackcat](https://ori09.s-ul.eu/0gRrp4mB)
+# [END DESTROYER](https://ori09.s-ul.eu/bbqwJ8h5)
 ![](https://ori09.s-ul.eu/2LnmX5lZ)
 
 # [nareo](https://ori09.s-ul.eu/bP6JzLli)
