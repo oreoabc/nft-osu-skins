@@ -8,6 +8,7 @@ thank you [rudj github](https://github.com/rudj-skinhub/woal#readme) for the sho
 i made the tekkito skin ui (cleanest ui of all time, i know)
 
 last update: feb 2 2023
+most recently updated skin: pinkistia
 
 # [bacon](https://ori09.s-ul.eu/sEHaf94f)
 ![](https://ori09.s-ul.eu/lkAAsNvf)
@@ -27,6 +28,8 @@ last update: feb 2 2023
 # [ryuk's lowbob](https://ori09.s-ul.eu/IOhaZxw6)
 ![](https://ori09.s-ul.eu/dL4vDbJC)
   
-# [BUBBLESKIN EDIT + ARGON PRO HS](https://ori09.s-ul.eu/zMeYtwZm)
+# [bubbleskin edit + argon pro hs](https://ori09.s-ul.eu/zMeYtwZm)
 ![](https://ori09.s-ul.eu/qCJDx8KA)
- 
+
+# [pinkistia](https://ori09.s-ul.eu/GVNJkBUR)
+![](https://ori09.s-ul.eu/lZ0ibqDI)
