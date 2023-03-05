@@ -26,7 +26,7 @@ most recently updated skin: pinkistia
 # [nareo](https://ori09.s-ul.eu/bP6JzLli)
 ![](https://ori09.s-ul.eu/6MNjqsWT)
 
-# [ryuk's lowbob](https://ori09.s-ul.eu/IOhaZxw6)
+# [ryuk's lowbob](https://ori09.s-ul.eu/3Z7djY45)
 ![](https://ori09.s-ul.eu/dL4vDbJC)
   
 # [bubbleskin edit + argon pro hs](https://ori09.s-ul.eu/zMeYtwZm)
