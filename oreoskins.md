@@ -9,7 +9,7 @@ i made the tekkito skin ui (cleanest ui of all time, i know)
 
 last update: april 5 2023
 
-most recently updated skin: dt 2023
+most recently updated skin: ryuk's lowbob
 
 # [tekkitoreo 2023](https://ori09.s-ul.eu/MOLnKIYq)
 ![](https://ori09.s-ul.eu/AKojCNiO)
@@ -32,7 +32,7 @@ most recently updated skin: dt 2023
 # [nareo](https://ori09.s-ul.eu/bP6JzLli)
 ![](https://ori09.s-ul.eu/6MNjqsWT)
 
-# [ryuk's lowbob](https://ori09.s-ul.eu/3Z7djY45)
+# [ryuk's lowbob](https://ori09.s-ul.eu/7zj9gLoE)
 ![](https://ori09.s-ul.eu/dL4vDbJC)
   
 # [bubbleskin edit + argon pro hs](https://ori09.s-ul.eu/zMeYtwZm)
