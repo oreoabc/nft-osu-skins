@@ -11,8 +11,9 @@ last update: april 5 2023
 
 most recently updated skin: ryuk's lowbob
 
-# [tekkitoreo 2023](https://ori09.s-ul.eu/MOLnKIYq)
-![](https://ori09.s-ul.eu/AKojCNiO)
+# [tekkitoreo 2023](https://ori09.s-ul.eu/uwJ7FLQ0)
+![](![image](https://github.com/oreoabc/nft-osu-skins/assets/87958480/cebfba8a-2da1-4b7a-bc57-414d96f6ab42)
+)
 
 # [dt 2023](https://ori09.s-ul.eu/3XZmLd1k)
 ![](https://ori09.s-ul.eu/DAR9PhcL)
