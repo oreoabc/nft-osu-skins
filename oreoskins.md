@@ -11,8 +11,8 @@ last update: april 5 2023
 
 most recently updated skin: ryuk's lowbob
 
-# [tekkitoreo 2023](https://ori09.s-ul.eu/uwJ7FLQ0)
-![](https://ori09.s-ul.eu/JXvAbGIj)
+# [tekkitoreo 2023](https://cdn.discordapp.com/attachments/861498075061944370/1117297631199240244/tekkitoreo23.osk)
+![](https://ori09.s-ul.eu/uPHzU68t)
 
 # [dt 2023](https://ori09.s-ul.eu/3XZmLd1k)
 ![](https://ori09.s-ul.eu/DAR9PhcL)
