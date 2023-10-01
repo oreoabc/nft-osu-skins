@@ -41,6 +41,9 @@ most recently updated skin: ryuk's lowbob
 # [pinkistia](https://ori09.s-ul.eu/GVNJkBUR)
 ![](https://ori09.s-ul.eu/lZ0ibqDI)
 
+# [shieldxei](https://ori09.s-ul.eu/0dyVljN7)
+![](https://ori09.s-ul.eu/IqQS8ZlY)
+
 # [oreo dt 2021](https://ori09.s-ul.eu/WWd0YbVa)
 ![](https://cdn.discordapp.com/attachments/868972249040949279/1155340644336808057/image.png)
 
