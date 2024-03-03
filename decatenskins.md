@@ -12,10 +12,10 @@
 </p>
 
 
-# [dinglekito](https://cdn.discordapp.com/attachments/1041565612184444939/1208193892894384168/dinglekito.osk?ex=65e2653f&is=65cff03f&hm=5ce0b7b70e22f346136de35336d27b9d81c49099b640863a4f244e78384dc48c&)
+# [dinglekito](https://ori09.s-ul.eu/tGb8qez9)
 ![](https://github.com/oreoabc/nft-osu-skins/assets/87958480/38d416e8-ed28-4d10-8c65-5b32723e383e)
 
-# [Rafis 2018-03-26](https://ori09.s-ul.eu/ivrHeHDg)
+# [Rafis 2018-03-26](https://drive.google.com/drive/folders/1C0SK5krIHOhdw96jITxUEUSx2uC-lGMY)
 ![](https://ori09.s-ul.eu/MMKgcyGB)
 
 # [azerino instafade](https://ori09.s-ul.eu/2WQq73XY)
