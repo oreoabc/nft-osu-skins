@@ -1,5 +1,7 @@
 [**twitter**](https://twitter.com/bobertind)
 
+<h1>I NO LONGER USE THIS, DO NOT EXPECT ANY EDITS</h1>
+
 THESE MY NON FUNGIBLE OSU SKINS. I OWN THEM ON THE ETHEREUM BLOCK CHAIN. DO NOT STEAL THEM.
 ALL SKINS SHOWN ARE EXCLUSIVE TO THIS PAGE! unless some wanker steals them and puts it on their skin page
 
